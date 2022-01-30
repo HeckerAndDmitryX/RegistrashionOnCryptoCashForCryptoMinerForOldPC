@@ -1,3 +1,3 @@
-# CryptoCashForCryptoMinerForOldPC
-#CryptoCashForCryptoMinerForOldPC lol
+ lol
 #Need installed python
+#Registrashion on CryptoCashByHeckerAndDmitryX
